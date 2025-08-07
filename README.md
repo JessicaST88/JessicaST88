@@ -7,12 +7,14 @@
 I'm Jessi, 23. Currently diving into the world of programming.  <br>
 Technology is more than a passion it's part of who I am.  <br>
 Reader. Writer. Gamer. Story-lover.  <br>
-Series like *House of the Dragon*? My kind of world.  <br>
-![Cena de Game of Thrones](got.gif.gif)  <br>
+Series like *House of the Dragon*? My kind of world.  <br> 
+
+![Cena de Game of Thrones](got.gif.gif)  <br>  
+
 Neutral by nature, calm by energy, and  <br>
 quietly building my future one line of code at a time.<br><br>
 
-⫷⫷ 𝘚𝘵𝘢𝘺𝘪𝘯𝘨 𝘧𝘰𝘤𝘶𝘴𝘦𝘥. 𝘚𝘵𝘢𝘺𝘪𝘯𝘨 𝘧𝘪𝘳𝘦-𝘥𝘳𝘪𝘷𝘦𝘯. ⫸⫸<br>
+⫷⫷ 𝘚𝘵𝘢𝘺𝘪𝘯𝘨 𝘧𝘰𝘤𝘶𝘴𝘦𝘥. 𝘚𝘵𝘢𝘺𝘪𝘯𝘨 𝘧𝘪𝘳𝘦-𝘥𝘳𝘪𝘷𝘦𝘯. ⫸⫸<br>  
 
 ---
 
