@@ -4,7 +4,7 @@
 𝙅𝙚𝙨𝙨𝙞  𝙈𝙞𝙣𝙙 𝙤𝙛 𝘾𝙤𝙙𝙚, <br>
 ╚═════════════ ༒☬༒ ═════════════╝  <br><br>
 
-I'm Jessi, 23. Currently diving into the world of programming.  <br>
+I'm Jessi, 24. Currently diving into the world of programming.  <br>
 Technology is more than a passion it's part of who I am.  <br>
 Reader. Writer. Gamer. Story-lover.  <br>
 Series like *House of the Dragon*? My kind of world.  <br> 
